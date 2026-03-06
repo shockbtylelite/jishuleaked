@@ -4,3 +4,5 @@
 # Password For https://ptero2.jishnumondal32.workers.dev/
 ## Username:jishnu
 ## Password:jishnuh@cker123
+# Offical discord server find us here 
+### https://discord.gg/6YMjsHg5FN
